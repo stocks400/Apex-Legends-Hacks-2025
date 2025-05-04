@@ -4,7 +4,7 @@
 Packed with powerful features like **Aimbot**, **ESP**, **Chams**, **Skinchanger**, and an **Undetected HWID Spoofer** – all in one package.  
 💥 *Perfect for Steam, Origin, and EA App versions.*
 
-[![dullwave-apex-5.png](https://i.postimg.cc/sxmrzDM5/dullwave-apex-5.png)](https://postimg.cc/ZvWgFmFq)  
+[![dullwave-apex-5.png](https://i.postimg.cc/sxmrzDM5/dullwave-apex-5.png)](https://postimg.cc/ZvWgFmFq)
 [![nrTOxfe.jpg](https://i.postimg.cc/sfmdvx2h/nrTOxfe.jpg)](https://postimg.cc/3WkbqKm8)
 
 ---
@@ -115,5 +115,3 @@ Packed with powerful features like **Aimbot**, **ESP**, **Chams**, **Skinchanger
 ```
 
 ---
-
-> ⚠️ **Disclaimer**: This repository is for educational purposes only. Using cheats in online games may violate the terms of service and result in bans.
